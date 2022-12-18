@@ -9,7 +9,7 @@ Proof of Owning: Works published, and writings/speakings all over.
 
 Subjects of Claims: Works published by the owner on different platforms in different ways, partially or not, deliberate or not, since 1988.
 
-Owning: All works from scratch of the owner, near 100% of published works, near 100% of creativivity impact.
+Owning: All works from scratch of the owner, near 100% of published works, near 100% of creativity impact.
 
 Concerning Author Rights: Equations and codes from scratch of the owner, softwares built from it, all things of people arising from it.
 
