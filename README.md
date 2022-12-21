@@ -7,7 +7,7 @@ Contact: michael.franiatte@gmail.com.
 
 Proof of Owning: Works published, and writings/speakings all over.
 
-Subjects of Claims: Works published by the owner on different platforms in different ways, partially or not, deliberate or not, since 1988.
+Subjects of Claims: Works published by the owner on different platforms in different ways, partially or not, deliberate or not.
 
 Owning: All works from scratch of the owner, near 100% of published works, near 100% of creativity impact.
 
