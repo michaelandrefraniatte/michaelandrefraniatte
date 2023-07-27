@@ -1,2 +1,2 @@
-https://michaelandrefraniatte.github.io
-https://michaelandrefraniatte.github.io/directory
+https://michaelandrefraniatte.github.io  
+https://michaelandrefraniatte.github.io/directory  
