@@ -3,5 +3,5 @@
   
 **Portfolio:** https://michaelandrefraniatte.github.io/cv  
   
-**File Path:** https://michaelandrefraniatte.github.io/directory  
+**Files:** https://michaelandrefraniatte.github.io/directory  
   
