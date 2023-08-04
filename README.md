@@ -1,6 +1,10 @@
 ﻿  
 **Email:** michael.franiatte@gmail.com  
   
+**Youtube:** https://www.youtube.com/@mic113b  
+  
+**Steam:** https://steamcommunity.com/id/mic113b  
+  
 **Dashboard:** https://michaelandrefraniatte.github.io  
   
 **Portfolio:** https://michaelandrefraniatte.github.io/cv  
