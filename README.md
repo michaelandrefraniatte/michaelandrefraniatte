@@ -9,13 +9,13 @@
 *You can add me as friend to play video games together*  
   
 **Dashboard:** https://michaelandrefraniatte.github.io  
-*All my personal works presented and explained in a website*  
+*All my personal works presented and explained in my website*  
   
 **Portfolio:** https://michaelandrefraniatte.github.io/cv  
-*I have a resume of my profile for employement*  
+*I made a resume of my profile for employement as a job seeker*  
   
 **Files:** https://michaelandrefraniatte.github.io/directory  
-*The system of files for localize my SDK and programs in my repositories*  
+*My system of files for localize my SDK and programs among my repositories*  
   
 **Infos:** [https://docs.github.com/en/repositories/.../licensing-a-repository](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
 *The default copyright laws are applied to my personal works published in my GitHub repositories*  
