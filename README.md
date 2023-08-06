@@ -18,5 +18,5 @@
 *My system of files for localize my SDK and programs among my repositories*  
   
 **Infos:** [https://docs.github.com/en/repositories/.../licensing-a-repository](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
-*The default copyright laws are applied to my personal works published in my GitHub repositories*  
+*The default copyright laws are applied to my personal works published in my repositories*  
   
