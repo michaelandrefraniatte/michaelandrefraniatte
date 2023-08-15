@@ -1,6 +1,6 @@
 ﻿  
 **Email:** michael.franiatte@gmail.com  
-*Take contact with me if your are interested in my personal works*  
+*Contact me if your are interested in my personal works*  
   
 **Youtube:** https://www.youtube.com/@mic113b  
 *I present somes of my personal works with video demo*  
