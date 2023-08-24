@@ -12,6 +12,18 @@
 *The default copyright laws are applied to my personal works published in my repositories*  
   
   
+### Website  
+  
+**Dashboard:** https://michaelandrefraniatte.github.io  
+*All my personal works presented and explained in my website*  
+  
+**Portfolio:** https://michaelandrefraniatte.github.io/cv  
+*I made a resume of my profile for employement as a job seeker*  
+  
+**Files:** https://michaelandrefraniatte.github.io/directory  
+*My system of files for localize my SDK and programs among my repositories*  
+  
+  
 ### Youtube  
   
 **Video:** https://www.youtube.com/@mic113b/videos  
@@ -31,17 +43,5 @@
   
 **Detect:** https://www.youtube.com/@ammaugust/videos  
 *I and a friend of mine found some nice WWII tools in soils*  
-  
-  
-### Website  
-  
-**Dashboard:** https://michaelandrefraniatte.github.io  
-*All my personal works presented and explained in my website*  
-  
-**Portfolio:** https://michaelandrefraniatte.github.io/cv  
-*I made a resume of my profile for employement as a job seeker*  
-  
-**Files:** https://michaelandrefraniatte.github.io/directory  
-*My system of files for localize my SDK and programs among my repositories*  
   
   
