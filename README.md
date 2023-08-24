@@ -1,6 +1,6 @@
 ﻿  
   
-#### Important  
+### Important  
   
 **Email:** michael.franiatte@gmail.com  
 *Contact me if your are interested in my personal works*  
@@ -12,7 +12,7 @@
 *The default copyright laws are applied to my personal works published in my repositories*  
   
   
-#### Youtube  
+### Youtube  
   
 **Video:** https://www.youtube.com/@mic113b/videos  
 *I present somes of my personal works with video demo*  
@@ -33,7 +33,7 @@
 *I and a friend of mine found some nice WWII tools in soils*  
   
   
-#### Website  
+### Website  
   
 **Dashboard:** https://michaelandrefraniatte.github.io  
 *All my personal works presented and explained in my website*  
