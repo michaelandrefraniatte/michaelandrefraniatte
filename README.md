@@ -39,7 +39,7 @@
 *I tried to play multiplayer games but unfortunatly it's unplayable*  
   
 **Origin:** https://www.youtube.com/@michaelmicas7168/videos  
-*I tried to valorize my discovories on Origin of Life but it interest nobody*  
+*I tried to valorize my discoveries on Origin of Life but it failed*  
   
 **Detect:** https://www.youtube.com/@ammaugust/videos  
 *I and a friend of mine found some nice WWII tools in soils*  
