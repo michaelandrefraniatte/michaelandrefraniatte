@@ -6,10 +6,10 @@
 ### Rule  
   
 **Email:** michael.franiatte@gmail.com  
-*Contact me if your are interested in anything among my personal works.*  
+*Contact me if your are interested in anything among my personal works.*\**  
   
 **Infos:** [https://docs.github.com/en/repositories/.../licensing-a-repository](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
-*The default copyright laws are applied to my personal works published in my repositories.*  
+*The default copyright laws are applied to my personal works published in my repositories.*\***  
   
   
 ### Website  
@@ -30,6 +30,8 @@
 *I present somes of my personal works with video stream.*  
   
   
-\* I was forced to publish my works by myself alone, otherwise it would be stolen or lost  
+\* I was forced to publish my personal works by myself, otherwise it would be stolen or lost, being alone and without any rip off skill.  
+\** Required.  
+\*** I retain all rights on my sources codes, and no one may reproduce, distribute, or create derivative works from my personal works.  
   
   
