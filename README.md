@@ -1,6 +1,6 @@
 ﻿  
   
-## Welcome under my GitHub, where I publish my personal works!  
+## Welcome under my GitHub, where I publish my personal works!\*  
   
   
 ### Rule  
@@ -28,5 +28,8 @@
   
 **Stream:** https://www.youtube.com/@mic113b/streams  
 *I present somes of my personal works with video stream.*  
+  
+  
+\* I was forced to publish my works by myself alone, otherwise it would be stolen or lost  
   
   
