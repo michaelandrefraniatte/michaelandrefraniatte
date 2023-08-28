@@ -29,6 +29,7 @@
 **Steam:** https://steamcommunity.com/id/mic113b  
 *Add me as friend on Steam community to play at games together.*  
   
+\
   
 \* I was forced to publish my personal works by myself, otherwise it would be stolen or lost, being alone and without any rip off skill.  
 \** Required, I don't accept the free use by anyone of anything I published, I own 100% of rights, any infringement will be prosecuted.  
