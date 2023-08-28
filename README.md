@@ -31,7 +31,7 @@
   
   
 \* I was forced to publish my personal works by myself, otherwise it would be stolen or lost, being alone and without any rip off skill.  
-\** Required.  
+\** Required, I don't accept the free use by anyone of anything I published, I own 100% of rights, any infringement will be prosecuted.  
 \*** I retain all rights on my sources codes, and no one may reproduce, distribute, or create derivative works from my personal works.  
   
   
