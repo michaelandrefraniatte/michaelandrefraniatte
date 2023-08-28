@@ -21,13 +21,13 @@
 *My system of files for localize my SDK and programs among my repositories.*  
   
   
-### Youtube  
+### Social  
   
-**Video:** https://www.youtube.com/@mic113b/videos  
-*I present somes of my personal works with video demo.*  
+**Youtube:** https://www.youtube.com/@mic113b  
+*I present somes of my personal works with videos.*  
   
-**Stream:** https://www.youtube.com/@mic113b/streams  
-*I present somes of my personal works with video stream.*  
+**Steam:** https://steamcommunity.com/id/mic113b  
+*Add me as friend on Steam community to play at games together.*  
   
   
 \* I was forced to publish my personal works by myself, otherwise it would be stolen or lost, being alone and without any rip off skill.  
