@@ -30,9 +30,9 @@ I present somes of my personal works with videos.
 Add me as friend on Steam community to play at games together.  
   
   
-#  
+##  
 *\* I was forced to publish my personal works by myself, otherwise it would be stolen or lost, being alone and without any rip off skill.*  
-*\*\* Required, I don't accept the free use by anyone of anything I published, I own 100% of rights, any infringement will be prosecuted.*  
+*\*\* I don't accept the free use by anyone on anything I published, I own 100% of rights, any infringement will be prosecuted in lawsuit.*  
 *\*\*\* I retain all rights on my sources codes, and no one may reproduce, distribute, or create derivative works from my personal works.*  
   
   
