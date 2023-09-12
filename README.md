@@ -33,6 +33,6 @@ Add me as friend on Steam community to play at games together.
 ##  
 *\* I was forced to publish by myself, otherwise it would be stolen or lost, being alone.*  
 *\*\* I own 100% of rights, I worked hard and a lot on everything, so it's not free of use.*  
-*\*\*\* I retain all rights, and no one may reproduce, distribute, or create derivative works.*  
+*\*\*\* I retain all rights, and no one may reproduce, distribute, or create derivative work.*  
   
   
