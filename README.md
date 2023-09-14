@@ -15,7 +15,7 @@ The default copyright laws are applied to my repositories.\*\*\*
 ### Website  
   
 **Dashboard:** https://michaelandrefraniatte.github.io  
-All my personal works presented in my website.  
+All my personal works are presented in my website.  
   
 **Files:** https://michaelandrefraniatte.github.io/directory  
 My system of files for localize my SDK and programs.  
@@ -32,7 +32,7 @@ Add me as friend on Steam community to play at games.
   
 ##  
 *\* I was forced to publish my works, otherwise it would be stolen or lost.*  
-*\*\* I worked hard and a lot on everything, and so it's not free of use.*  
+*\*\* I worked hard and a lot on all my source codes, and so it's not free of use.*  
 *\*\*\* I retain all rights, and no one may reproduce, distribute, or create derivative works.*  
   
   
