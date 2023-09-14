@@ -24,7 +24,7 @@ My system of files for localize my SDK and programs.
 ### Social  
   
 **Youtube:** https://www.youtube.com/@mic113b  
-I present somes of my personal works with videos.  
+Subscribe to my channel Youtube with some videos.  
   
 **Steam:** https://steamcommunity.com/id/mic113b  
 Add me as friend on Steam community to play at games.  
