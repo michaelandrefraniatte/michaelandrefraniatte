@@ -9,7 +9,7 @@
 Contact me if your are interested in anything.\*\*  
   
 **Infos:** [https://docs.github.com/en/repositories/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
-The default copyright laws are applied to source codes.\*\*\*  
+The default copyright laws are applied to my source codes.\*\*\*  
   
   
 ### Website  
