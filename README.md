@@ -8,8 +8,8 @@
 **Email:** michael.franiatte@gmail.com  
 Contact me if your are interested in anything.\*\*  
   
-**Infos:** [https://docs.github.com/en/repositories/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
-The default copyright laws are applied to my source codes.\*\*\*  
+**Infos:** [https://docs.github.com/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
+My source codes is under copyright laws.\*\*\*  
   
   
 ### Website  
@@ -27,7 +27,7 @@ My system of files for localize my SDK and programs.
 Subscribe to my channel Youtube with some videos.  
   
 **Steam:** https://steamcommunity.com/id/mic113b  
-Add me as friend on Steam community to play at games.  
+My Steam profile to add me as friend for play together.  
   
   
 ##  
