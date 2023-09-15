@@ -8,16 +8,16 @@
 **Email:** michael.franiatte@gmail.com  
 Contact me if your are interested in anything.\*\*  
   
-**Infos:** [https://docs.github.com/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
-My source codes are under copyright laws.\*\*\*  
+**Licensing:** [https://docs.github.com/en/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
+My source codes are under default copyright laws.\*\*\*  
   
   
 ### Website  
   
 **Dashboard:** https://michaelandrefraniatte.github.io  
-All my personal works are presented in my website.  
+Check my website where I present my works.  
   
-**Files:** https://michaelandrefraniatte.github.io/directory  
+**Directory:** https://michaelandrefraniatte.github.io/directory  
 My system of files for localize my SDK and programs.  
   
   
