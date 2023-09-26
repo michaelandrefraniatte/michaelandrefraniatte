@@ -26,4 +26,4 @@ Unlock files in unzipped folder after repository download.
 *\* I was forced to publish my works, otherwise it would be stolen and lost, I worked hard and a lot, and so it's not free of use.*  
 *\*\* I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.*  
 *\*\*\* I only accept personal use by delivering my consent for each user, I'm asking more negotiations for commercial use.*  
-*\*, \*\*, \*\*\* I don't accept any use of my repositories, works, source codes, equations, assistances, websites, and programs, even for personal use, without you contact, pay, and quote me.*  
+*\*, \*\*, \*\*\* I don't accept any use of my repositories, works, source codes, equations, assistances, websites, programs, and everything arising from it, even for personal use, without you contact, pay, and quote me.*  
