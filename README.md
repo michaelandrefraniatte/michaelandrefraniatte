@@ -9,7 +9,7 @@ Contact me if your are interested in anything.\*
 Check my legitimacy about applied default copyright laws.\*\*  
   
 **Usage:** [https://www.microsoft.com/en-us/legal/..](https://www.microsoft.com/en-us/legal/intellectualproperty/copyright)  
-Check intellectual property with potential exception of fair use.  
+Check intellectual property with potential exception of personal use.\*\*\*  
   
 ### Website  
   
@@ -25,3 +25,4 @@ Unlock files in unzipped folder after repository download.
 ##  
 *\* I was forced to publish my works, otherwise it would be stolen and lost, I worked hard and a lot, and so it's not free of use.*  
 *\*\* I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.*  
+*\*\*\* I only accept personal use by delivering my consent for each user, I'm asking more negotiations for commercial use.*  
