@@ -25,4 +25,4 @@ Unlock files in unzipped folder after repository download.
 ##  
 *\* I don't accept you are using anything in any manner from my repositories without you contact me, quote me, and pay me.*  
 *\*\* I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.*  
-*\*\*\* I'm the exclusive author of my works, source codes, equation and assistances, you don't own any right to use freely.*  
+*\*\*\* I'm the exclusive author of my works, source codes, equations and assistances, you don't own any right to use freely.*  
