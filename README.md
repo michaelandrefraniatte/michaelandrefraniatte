@@ -9,7 +9,7 @@ Contact me if your are interested in anything.\*
 Check my legitimacy about applied default copyright laws.\*\*  
   
 **Usage:** [https://www.microsoft.com/en-us/legal/..](https://www.microsoft.com/en-us/legal/intellectualproperty/copyright)  
-Check the meaning of intellectual property and default copyright laws.  
+Check the meaning of intellectual property and default copyright laws.\*\*\*  
   
 ### Website  
   
@@ -23,6 +23,6 @@ Localize my SDK and programs among my repositories.
 Unlock files in unzipped folder after repository download.  
   
 ##  
-*\* I was forced to publish my works, otherwise it would be stolen, lost, and ransacked, as has already happened, being alone, I worked hard and a lot on everything, and so it's not free of use at all.*  
+*\* I don't accept you are using anything in any manner from my repositories without you contact me, quote me, and pay me.*  
 *\*\* I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.*  
-*\*, \*\* I don't accept use in any manner of my repositories, works, source codes, equations, assistances, websites, videos, programs, dlls, tools, files, infos, and everything arising from it, if you don't contact me, quote me, and pay me as high as I want, as I don't accept to be insulted, mocked and ignored.*  
+*\*\*\* I'm the exclusive author of my works, source codes, equation and assistances, you don't own any right to use freely.*  
