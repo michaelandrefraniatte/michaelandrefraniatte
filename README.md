@@ -8,7 +8,7 @@ Contact me if your are interested in anything.\*
 **Licensing:** [https://docs.github.com/en/repositories/...](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
 Check my legitimacy about applied default copyright laws.\*\*  
   
-**Usage:** [https://www.microsoft.com/en-us/legal/..](https://www.microsoft.com/en-us/legal/intellectualproperty/copyright)  
+**Usage:** [https://www.microsoft.com/en-us/legal/...](https://www.microsoft.com/en-us/legal/intellectualproperty/copyright)  
 Check the meaning of intellectual property and default copyright laws.\*\*\*  
   
 ### Website  
