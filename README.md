@@ -23,6 +23,6 @@ Localize my SDK and programs among my repositories.
 Unlock files in unzipped folder after repository download.  
   
 ##  
-*\* I was forced to publish my works, otherwise it would be stolen, lost, and ransacked, being alone, I worked hard and a lot on everything, and so it's not free of use at all.*  
+*\* I was forced to publish my works, otherwise it would be stolen, lost, and ransacked, as has already happened, being alone, I worked hard and a lot on everything, and so it's not free of use at all.*  
 *\*\* I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.*  
-*\*, \*\* I don't accept use in any manner of my repositories, works, source codes, equations, assistances, websites, videos, programs, dlls, tools, files, infos, and everything arising from it, if you don't contact me, quote me, and pay me as high as I want.*  
+*\*, \*\* I don't accept use in any manner of my repositories, works, source codes, equations, assistances, websites, videos, programs, dlls, tools, files, infos, and everything arising from it, if you don't contact me, quote me, and pay me as high as I want, as I don't accept to be insulted, mocked and ignored.*  
