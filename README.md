@@ -1,2 +1,2 @@
-﻿**Michaël André Franiatte ©1999-2023**  
-My works are protected by __default copyright laws__, contact me at michael.franiatte@gmail.com.  
+﻿<b>Michaël André Franiatte ©1999-2023</b>  
+My works are protected by <u>default copyright laws</u>, contact me at <i>michael.franiatte@gmail.com</i>.  
