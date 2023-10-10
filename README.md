@@ -1,1 +1,1 @@
-﻿MAF ©1989-2023,  no one may own and use anything in any manner from me.
+﻿MAF ©1989-2023,  no one may own and use anything in any manner.
