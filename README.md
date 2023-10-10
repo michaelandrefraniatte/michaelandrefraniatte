@@ -1,5 +1,5 @@
 ﻿  
 <b>Michaël André Franiatte ©1999-2023</b>  
   
-You are please to contact me at michael.franiatte@gmail.com.  
+I don't accept anyone own and use anything in any manner from my works, source codes, equations, assistances, websites, etc.  
   
