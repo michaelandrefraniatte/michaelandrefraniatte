@@ -1,1 +1,1 @@
-﻿MAF ©1999-2023,  no one may own, obtain, use, reproduce, distribute, or derivate anything in any manner.
+﻿MAF ©1999-2023,  I retain all rights on my source codes, and no one may reproduce, distribute, or create derivative works from my works.
