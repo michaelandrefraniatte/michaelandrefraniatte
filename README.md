@@ -1,1 +1,1 @@
-﻿MAF ©1999-2023, no one is allowed for anything in any manner, no permissions granted to anyone.
+﻿MAF ©1999-2023
