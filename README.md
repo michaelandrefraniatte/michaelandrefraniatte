@@ -1,1 +1,7 @@
-﻿MAF ©1999-2023
+﻿  
+• Author: Michaël André Franiatte.  
+  
+• Copyrights: All rights reserved, no permissions granted.  
+  
+• Contact: michael.franiatte@gmail.com.  
+  
