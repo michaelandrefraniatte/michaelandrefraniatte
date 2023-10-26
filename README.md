@@ -9,7 +9,7 @@
   
 • Disagreements: Imperative deletion of everything without delay.  
   
-• Infringements: Pay the thousand of times what owner is asking.  
+• Infringements: Owe the thousand of times what owner is asking.  
   
 • Contact: michael.franiatte@gmail.com for fixing prices and stuffs.  
   
