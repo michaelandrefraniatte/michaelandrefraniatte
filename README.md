@@ -1,4 +1,6 @@
 ﻿  
+• Publisher: GitHub.  
+  
 • Author: Michaël André Franiatte.  
   
 • Copyrights: All rights reserved, no permissions granted.  
