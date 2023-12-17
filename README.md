@@ -1,5 +1,5 @@
 ﻿  
-• Publishing: Equations, source codes, supports, programs, pages, etc.  
+• Publishing: Source codes, equations, supports, programs, libraries, pages, scripts, configs, etc.  
   
 • Publisher: GitHub.  
   
@@ -7,9 +7,13 @@
   
 • Copyrights: All rights reserved, no permissions granted.  
   
-• Requirements: Pay and quote the author for being granted to use.  
+• Licence: Not open source, author retain all rights, and no one may reproduce or create derivative works.  
+  
+• Requirements: Pay and quote author for being granted to use, and only under the shape of author builts.  
   
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
+  
+• Home: [github.com/michaelandrefraniatte](https://github.com/michaelandrefraniatte).  
   
 • Contact: michael.franiatte@gmail.com.  
   
