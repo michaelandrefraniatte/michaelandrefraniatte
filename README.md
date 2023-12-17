@@ -11,6 +11,8 @@
   
 • Requirements: Pay and quote author for being granted to use, and only under the shape of author builts.  
   
+• Infringements: Who not agree owe the copyrights subsequent penalities for each work of author.  
+  
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
   
 • Home: [github.com/michaelandrefraniatte](https://github.com/michaelandrefraniatte).  
