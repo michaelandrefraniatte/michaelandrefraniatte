@@ -7,11 +7,11 @@
   
 • Copyrights: All rights reserved, no permissions granted.  
   
-• Licence: Not open source, author retain all rights, and no one may reproduce or create derivative works.  
+• Licence: Not open source, author retains all rights, and no one may reproduce or create derivative works.  
   
 • Requirements: Pay and quote author for being granted to use, and only under the shape of author builts.  
   
-• Infringements: Who not agree owe the copyrights subsequent penalities for each work of author.  
+• Infringements: Who not agree owes the copyrights subsequent penalities for each work of author.  
   
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
   
