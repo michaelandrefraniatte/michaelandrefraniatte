@@ -1,4 +1,6 @@
 ﻿  
+• Publishing: Equations, source codes, supports, programs, pages, etc.  
+  
 • Publisher: GitHub.  
   
 • Author: Michaël André Franiatte.  
