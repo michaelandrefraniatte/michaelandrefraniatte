@@ -13,7 +13,9 @@
   
 • Consent: No permissions are given without the consents of author by contacting him for using his works.  
   
-• Infringements: Who not agree owes the copyrights subsequent penalities for each work of author.  
+• Availability: Even published publicly, a commercial licence purchase is required to use any work of author.  
+  
+• Infringements: Who not agree owes to author the copyrights subsequent penalities for each work of author.  
   
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
   
