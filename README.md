@@ -1,5 +1,5 @@
 ﻿  
-• Publishing: Source codes, equations, programs, libraries, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, pictures, designs, etc.  
+• Publishing: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, pictures, designs, etc.  
   
 • Publisher: github.com/michaelandrefraniatte.  
   
