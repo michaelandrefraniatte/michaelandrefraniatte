@@ -7,13 +7,17 @@
   
 • Copyrights: All rights reserved, no permissions granted, on any publishing of author by the way.  
   
+• Properties: Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
+  
 • Licence: Not open source, author retains all rights, and no one may distribute, or reproduce, or create derivative works.  
+  
+• Availability: Even published publicly, a commercial licence purchase is required to use any work of author.  
   
 • Requirements: Contact, pay, and quote author for being granted to use, and only under the shape of author builts.  
   
 • Consents: No permissions are given without the consents of author by contacting him for using his works.  
   
-• Availability: Even published publicly, a commercial licence purchase is required to use any work of author.  
+• Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirements without limit.  
   
 • Concern: Author's work may not be used for private or commercial purpose without the requirement and consent.  
   
@@ -25,9 +29,9 @@
   
 • Re: Using undirectly constitutes also an infringement to copyrights which is also sanctionned by copyright laws.  
   
-• Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
+• Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitutes an infringement to copyrights.  
   
-• Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
+• Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
   
 • Home: [github.com/michaelandrefraniatte](https://github.com/michaelandrefraniatte).  
   
