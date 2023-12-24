@@ -7,7 +7,7 @@
   
 • Copyrights: All rights reserved, no permissions granted, on any publishing of author by the way.  
   
-• Licence: Not open source, author retains all rights, and no one may reproduce or create derivative works.  
+• Licence: Not open source, author retains all rights, and no one may distribute, or reproduce, or create derivative works.  
   
 • Requirements: Contact, pay, and quote author for being granted to use, and only under the shape of author builts.  
   
@@ -18,6 +18,10 @@
 • Concern: Author's work may not be used for private or commercial purpose without the requirement and consent.  
   
 • Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirement and consent.  
+  
+• Exposure: Sharing is strictly prohibited by anyone in any way and in any manner with or without the requirement and consent.  
+  
+• Use: Only personal use is tolerate, and only with the requirement and consent, in all cases copyright laws must be respected.  
   
 • Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
   
