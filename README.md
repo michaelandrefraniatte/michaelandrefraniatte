@@ -23,6 +23,8 @@
   
 • Use: Only personal use is tolerate, and only with the requirement and consent, in all cases copyright laws must be respected.  
   
+• Re: Using undirectly constitutes also an infringement to copyrights which is also sanctionned by copyright laws.  
+  
 • Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
   
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
