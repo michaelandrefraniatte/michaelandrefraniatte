@@ -1,11 +1,11 @@
 ﻿  
-• Publishing: Source codes, equations, supports, programs, libraries, pages, scripts, configs, etc.  
+• Publishing: Source codes, equations, programs, libraries, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, pictures, designs, etc.  
   
 • Publisher: GitHub.  
   
 • Author: Michaël André Franiatte.  
   
-• Copyrights: All rights reserved, no permissions granted.  
+• Copyrights: All rights reserved, no permissions granted, on any publishing of author by the way.  
   
 • Licence: Not open source, author retains all rights, and no one may reproduce or create derivative works.  
   
