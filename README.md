@@ -17,6 +17,8 @@
   
 • Concern: Author's work may not be used for private or commercial purpose without the requirement and consent.  
   
+• Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirement and consent.  
+  
 • Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
   
 • Website: [michaelandrefraniatte.github.io](https://michaelandrefraniatte.github.io/).  
