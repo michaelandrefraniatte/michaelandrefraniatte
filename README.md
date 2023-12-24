@@ -1,7 +1,7 @@
 ﻿  
 • Publishing: Source codes, equations, programs, libraries, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, pictures, designs, etc.  
   
-• Publisher: GitHub.  
+• Publisher: github.com/michaelandrefraniatte.  
   
 • Author: Michaël André Franiatte.  
   
@@ -33,11 +33,7 @@
   
 • Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
   
-• Ongo: Not respecting the terms of copyright and intellectual property of the author is purely categorized as theft, harassment, and crime.  
+• Ongo: Not respecting the terms of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
   
 • Circus: Author can hear the laughing clowns, who only shit and lick all their lives committing the worst, author don't accept clowns.  
-  
-• Home: [github.com/michaelandrefraniatte](https://github.com/michaelandrefraniatte).  
-  
-• Contact: michael.franiatte@gmail.com.  
   
