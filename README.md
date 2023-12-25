@@ -17,7 +17,7 @@
   
 • Consents: No permissions are given without the consents of author by contacting him for using his works.  
   
-• Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirements without limit.  
+• Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirement without limit.  
   
 • Concern: Author's work may not be used for private or commercial purpose without the requirement and consent.  
   
@@ -27,13 +27,13 @@
   
 • Use: Only personal use is tolerate, and only with the requirement and consent, in all cases copyright laws must be respected.  
   
-• Re: Using undirectly constitutes also an infringement to copyrights which is also sanctionned by copyright laws.  
+• Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
   
-• Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitutes an infringement to copyrights.  
+• Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
   
-• Infringement: Who's not agree owes to author the copyrights subsequent penalities for each work of author.  
+• Ongo: Not respecting the term of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
   
-• Ongo: Not respecting the terms of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
+• Circus: Author can hear the laughing clowns, who only shits and licks, committing the worst, so author doesn't accept clowns.  
   
-• Circus: Author can hear the laughing clowns, who only shit and lick all their lives committing the worst, author don't accept clowns.  
+• Infringement: Who's not agree with the term, owes to author the copyrights subsequent penalities, for each work of author.  
   
