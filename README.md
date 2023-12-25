@@ -21,7 +21,7 @@
   
 • Concern: Publishing of author may not be used for private or commercial purpose without the requirements and consents.  
   
-• Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirements and consents.  
+• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
   
 • Exposure: Sharing is strictly prohibited by anyone in any way and in any manner with or without the requirements and consents.  
   
