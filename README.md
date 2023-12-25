@@ -19,21 +19,21 @@
   
 • Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirement without limit.  
   
-• Concern: Author's work may not be used for private or commercial purpose without the requirement and consent.  
+• Concern: Author's work may not be used for private or commercial purpose without the requirements and consents.  
   
-• Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirement and consent.  
+• Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirements and consents.  
   
-• Exposure: Sharing is strictly prohibited by anyone in any way and in any manner with or without the requirement and consent.  
+• Exposure: Sharing is strictly prohibited by anyone in any way and in any manner with or without the requirements and consents.  
   
-• Use: Only personal use is tolerate, and only with the requirement and consent, in all cases copyright laws must be respected.  
+• Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
 • Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
   
 • Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
   
-• Ongo: Not respecting the term of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
+• Ongo: Not respecting the terms of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
   
-• Circus: Author can hear the laughing clowns, who only shits and licks, committing the worst, so author doesn't accept clowns.  
+• Circus: Author can hear the laughing clowns, who only shit and lick, committing the worst, so author doesn't accept clowns.  
   
-• Infringement: Who's not agree with the term, owes to author the copyrights subsequent penalities, for each work of author.  
+• Infringement: Who not agree with the terms, owe to author the copyrights subsequent penalities, for each work of author.  
   
