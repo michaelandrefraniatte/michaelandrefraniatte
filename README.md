@@ -19,7 +19,7 @@
   
 • Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirement without limit.  
   
-• Concern: Author's work may not be used for private or commercial purpose without the requirements and consents.  
+• Concern: Publishing of author may not be used for private or commercial purpose without the requirements and consents.  
   
 • Odd: Owning or obtaining author's works is a serious mistake not to be made without the requirements and consents.  
   
@@ -27,7 +27,9 @@
   
 • Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
-• Owning: No one may own or obtain or use directly or undirectly any work of author without the requirements and consents.  
+• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
+  
+• Sharing: No one may share directly or undirectly any publishing of author with or without the requirements and consents.  
   
 • Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
   
