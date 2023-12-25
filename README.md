@@ -27,6 +27,8 @@
   
 • Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
+• Owning: No one may own or obtain or use directly or undirectly any work of author without the requirements and consents.  
+  
 • Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
   
 • Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
