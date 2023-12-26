@@ -7,7 +7,7 @@
   
 • Contact: michael.franiatte@gmail.com.  
   
-• Site: michaelandrefraniatte.github.io.  
+• Site: <code>michaelandrefraniatte.github.io</code>.  
   
 • Copyrights and Intellectual Properties: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
   
