@@ -5,7 +5,7 @@
   
 • Author: Michaël André Franiatte, <code>michael.franiatte@gmail.com</code>.  
   
-• Copyrights: All rights reserved, no permissions granted, on any publishing of author by the way.  
+• Copyrights: All rights reserved, no permissions granted, on any work of author by the way.  
   
 • Properties: Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
   
@@ -19,23 +19,23 @@
   
 • Restriction: Author has the right at any time to withdraw his consent to anyone and to ask additional requirement without limit.  
   
-• Concern: Publishing of author may not be used for private or commercial purpose without the requirements and consents.  
+• Concern: Any work of author may not be used for private or commercial purpose without the requirements and consents.  
   
 • Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
 • Re: Using undirectly constitute an infringement to copyrights which is also sanctionned by copyright laws.  
   
-• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
+• Owning: No one may own or obtain or use directly or undirectly any work of author without the requirements and consents.  
   
-• Sharing: No one may share directly or undirectly any publishing of author with or without the requirements and consents.  
+• Sharing: No one may share directly or undirectly any work of author with or without the requirements and consents.  
   
 • Exposure: Sharing is strictly prohibited for anyone in any way and in any manner with or without the requirements and consents.  
   
-• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
+• Odd: Owning or obtaining any work of author is a serious mistake not to be made without the requirements and consents.  
   
 • Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
   
-• Ongo: Not respecting the terms of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
+• Ongo: Not respecting the terms of copyright and intellectual property of author is categorized as theft, harassment, and crime.  
   
 • Circus: Author hears the clowns laughing, making believe to be good, but committing the worst, so author doesn't accept them.  
   
