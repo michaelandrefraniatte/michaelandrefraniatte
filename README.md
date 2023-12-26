@@ -21,17 +21,17 @@
   
 • Concern: Publishing of author may not be used for private or commercial purpose without the requirements and consents.  
   
-• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
-  
-• Exposure: Sharing is strictly prohibited by anyone in any way and in any manner with or without the requirements and consents.  
-  
 • Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
-• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
+• Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
+  
+• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
+  
+• Exposure: Sharing is strictly prohibited for anyone in any way and in any manner with or without the requirements and consents.  
   
 • Sharing: No one may share directly or undirectly any publishing of author with or without the requirements and consents.  
   
-• Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
+• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
   
 • Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
   
