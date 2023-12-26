@@ -37,7 +37,7 @@
   
 • Ongo: Not respecting the terms of copyright and intellectual property of the author is categorized as theft, harassment, and crime.  
   
-• Circus: Author can hear the laughing clowns, who only shit and lick, committing the worst, so author doesn't accept clowns.  
+• Circus: Author hears the clowns laughing, making believe to work well, but committing the worst, so author doesn't accept them.  
   
 • Infringement: Who not agree with the terms, owe to author the copyrights subsequent penalities, for each work of author.  
   
