@@ -1,9 +1,9 @@
 ﻿  
-• Publishing: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, videos, streams, demos, speaks, links, inventions, experiments, experiences, analysis, expertisis, practices, etc.  
+• Publishing: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, inventions, experiments, experiences, analysis, expertisis, practices, diagnosis, etc.  
   
-• Publisher: github.com/michaelandrefraniatte.  
+• Publisher: github.com/michaelandrefraniatte, michaelandrefraniatte.github.io.  
   
-• Author: Michaël André Franiatte.  
+• Author: Michaël André Franiatte, <code>michael.franiatte@gmail.com</code>.  
   
 • Copyrights: All rights reserved, no permissions granted, on any publishing of author by the way.  
   
@@ -23,15 +23,15 @@
   
 • Use: Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
-• Re: Using undirectly constitute also an infringement to copyrights which is also sanctionned by copyright laws.  
+• Re: Using undirectly constitute an infringement to copyrights which is also sanctionned by copyright laws.  
   
-• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
-  
-• Exposure: Sharing is strictly prohibited for anyone in any way and in any manner with or without the requirements and consents.  
+• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
   
 • Sharing: No one may share directly or undirectly any publishing of author with or without the requirements and consents.  
   
-• Owning: No one may own or obtain or use directly or undirectly any publishing of author without the requirements and consents.  
+• Exposure: Sharing is strictly prohibited for anyone in any way and in any manner with or without the requirements and consents.  
+  
+• Odd: Owning or obtaining publishing of author is a serious mistake not to be made without the requirements and consents.  
   
 • Aware: Not being aware of the risk incurred against copyright laws is a serious fault and constitute an infringement to copyrights.  
   
