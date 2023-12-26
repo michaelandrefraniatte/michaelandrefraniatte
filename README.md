@@ -11,7 +11,7 @@
   
 • Licence: Not open source, author retains all rights, and no one may distribute, or reproduce, or create derivative works.  
   
-• Availability: Even published publicly, a commercial licence purchase is required to use any work of author.  
+• Availability: Even published publicly, a hand to hand licence purchase with a contract is required to use any work of author.  
   
 • Requirements: Contact, pay, and quote author for being granted to use, and only under the shape of author builts.  
   
