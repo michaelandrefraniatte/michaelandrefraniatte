@@ -3,9 +3,9 @@
   
 • Author: Michaël André Franiatte.  
   
-• Publisher: https://github.com/michaelandrefraniatte.  
-  
 • Contact: michael.franiatte@gmail.com.  
+  
+• Publisher: https://github.com/michaelandrefraniatte.  
   
 • Site: https://michaelandrefraniatte.github.io.  
   
