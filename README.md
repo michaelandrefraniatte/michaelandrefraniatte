@@ -1,5 +1,5 @@
 ﻿  
-• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, inventions, experiments, experiences, analysis, expertisis, practices, diagnosis, etc.  
+• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, tools, toys, molecules, books, articles, stories, widgets, macros, files, presentations, inventions, experiments, experiences, analysis, expertisis, practices, diagnosis, etc.  
   
 • Author: Michaël André Franiatte.  
   
