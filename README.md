@@ -1,6 +1,4 @@
 ﻿  
-• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, tools, toys, molecules, books, articles, stories, widgets, macros, files, presentations, inventions, experiments, experiences, analysis, expertisis, practices, diagnosis, etc.  
-  
 • Author: Michaël André Franiatte.  
   
 • Contact: michael.franiatte@gmail.com.  
@@ -8,6 +6,8 @@
 • Site: https://michaelandrefraniatte.github.io.  
   
 • Publisher: https://github.com/michaelandrefraniatte.  
+  
+• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, tools, toys, molecules, books, articles, stories, widgets, macros, files, presentations, inventions, experiments, experiences, analysis, expertisis, practices, diagnosis, etc.  
   
 • Copyrights and Intellectual Properties: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
   
