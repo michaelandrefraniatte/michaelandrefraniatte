@@ -11,7 +11,7 @@
   
 • Copyrights and Intellectual Properties: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
   
-• Licence: Not open source, author retains all rights, and no one may distribute, or reproduce, or create derivative works. Even published publicly, a hand to hand licence purchase with a contract is required to use any work of author.  
+• License: Not open source, author retains all rights, and no one may distribute, or reproduce, or create derivative works. Even published publicly, a hand to hand license purchase with a contract is required to use any work of author.  
   
 • Requirements and Consents: Contact, pay, and quote author for being granted to use, and only under the shape of author builts. No permissions are given without the consents of author by contacting him for using his works. Author has the right at any time to withdraw his consent to anyone and to ask additional requirement without limit. Any work of author may not be used for private or commercial purpose without the requirements and consents. Only personal use is tolerate, and only with the requirements and consents, in all cases copyright laws must be respected.  
   
