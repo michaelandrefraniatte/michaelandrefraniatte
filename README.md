@@ -7,7 +7,7 @@
   
 • Publisher: https://github.com/michaelandrefraniatte.  
   
-• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, tools, toys, molecules, materials, stabilisys, synthesys, books, articles, stories, widgets, macros, files, presentations, inventions, experiments, experiences, analysis, feelings, expertisis, practices, diagnosis, etc.  
+• Works: Source codes, equations, programs, libraries, webapps, websites, pages, scripts, configs, supports, infos, tips, helps, tricks, ideas, designs, pictures, arts, videos, streams, demos, speaks, links, tools, toys, molecules, materials, stabilisys, synthesys, books, articles, stories, widgets, macros, files, presentations, inventions, experiments, experiences, analysis, feelings, expertisis, practices, diagnosis, concepts, architectures, frameworks, words, debugs, releases, lucids, structures, draws, courses, curves, trends, effects, creations, derivates, modes, methods, functions, tabs, slides, keys, evolves, spirits, etc.  
   
 • Copyrights and Intellectual Property: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire intellectual properties on his works, no one has any right to use it freely.  
   
