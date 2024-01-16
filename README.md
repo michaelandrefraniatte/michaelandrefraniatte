@@ -9,9 +9,9 @@
   
 • Copyrights and Intellectual Property: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire copyrights and intellectual properties on his works, no one has any right to use it freely, and no one has any right to put his name on it.  
   
-• License: Not open source, author retains all rights on his works, no one may distribute, or reproduce, or copy, or modify, or create derivative works. Even published publicly, a hand to hand license purchase with a contract is required to use any work of author in any manner.  
+• License: Not open source, author retains all rights on his works, no one may distribute, or reproduce, or copy, or modify, or create derivative works. Only for private use. Only under the shape of author builts. Even published publicly, a hand to hand license purchase with a contract is required to use any work of author in any manner.  
   
-• Requirement and Consent: Contact, pay, and quote author for being granted to use. Permissions are only given with the consents of author by contacting him for using his works. Author has the right to refuse any use depending who asking, the price to be paid, and for what. Author has the right at any time to withdraw his consent to anyone and to ask additional requirement. Only private use is tolerate, only under the shape of author builts. No one may own or obtain or use any work of author without the requirements and consents.  
+• Requirement and Consent: Contact, pay, and quote author for being granted to use. Permissions are only given with the consents of author by contacting him for using his works. Author has the right to refuse any use depending who asking, the price to be paid, and for what. Author has the right at any time to withdraw his consent to anyone and to ask additional requirement. No one may own or obtain or use any work of author without the requirements and consents.  
   
 • Restriction: Sharing or using undirectly constitute infringements to copyrights which are sanctionned by copyright laws. No one may share or use undirectly any work of author. Sharing or using undirectly are strictly prohibited for anyone in any way and in any manner.  
   
