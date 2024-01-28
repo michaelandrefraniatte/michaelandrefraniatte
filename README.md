@@ -3,7 +3,7 @@
   
 • Works: Source codes, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, configs, macros, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, etc.  
   
-• Copyrights and Intellectual Property: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire copyrights and intellectual properties on his works, no one has any right to use it freely, and no one has any right to put his name on it.  
+• Copyrights and Intellectual Property: All rights reserved, no permissions granted, on any work of author by the way. Author is owning the entire copyrights and intellectual properties on his works, no one has any right to use it freely, and no one has any right to put his name on it, even published publicly.  
   
 • License: Not open source, author retains all rights on his works, no one may distribute, or reproduce, or copy, or modify, or create derivative works. Only for private use only under the shape of author builts. A hand to hand license purchase is required to use any work of author, even published publicly.  
   
