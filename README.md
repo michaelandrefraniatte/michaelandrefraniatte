@@ -1,5 +1,5 @@
 ﻿  
-### License Agreement  
+### License Agreement for Using Works of Author:  
   
 • Author: Michaël André Franiatte. • Email: michael.franiatte@gmail.com. • Publisher: https://github.com/michaelandrefraniatte.  
   
