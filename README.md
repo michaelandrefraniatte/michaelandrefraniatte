@@ -1,4 +1,6 @@
 ﻿  
+### License Agreement  
+  
 • Author: Michaël André Franiatte. • Email: michael.franiatte@gmail.com. • Publisher: https://github.com/michaelandrefraniatte.  
   
 • Works: Source codes, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, configs, macros, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, etc.  
