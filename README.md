@@ -9,7 +9,7 @@
   
 • License: Not open source, author retains all rights on his works, no one may distribute, or reproduce, or copy, or modify, or create derivative works. Only for private use only under the shape of author builts. A hand to hand license purchase is required to use any work of author, even published publicly.  
   
-• Requirement and Consent: Contact, pay, and quote author for being granted to use. Permissions to use are only given with the consents of author by contacting him. Author has right to refuse any use depending who asking, the price to pay, and for what. Author has right at any time to withdraw his consent to anyone and to ask additional requirement. No one may own or obtain or use any work of author without the requirements and consents, even published publicly.  
+• Requirement and Consent: Contact, pay, and quote author for being granted to use. Permissions to use are only given with the consents of author by contacting him. Author has right to refuse any use depending who asking, the price to pay, and for what. No one may own or obtain or use any work of author without the requirements and consents, even published publicly.  
   
 • Restriction: Sharing or using undirectly constitute infringements to copyrights which are sanctionned by copyright laws. No one may share or use undirectly any work of author. Sharing or using undirectly are strictly prohibited in any way and in any manner.  
   
