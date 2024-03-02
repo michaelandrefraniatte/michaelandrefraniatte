@@ -9,11 +9,11 @@ License Agreement for Using Works of Author
   
 • License: Not open source, author retains all rights on his works, no one may distribute, reproduce, copy, modify, or create derivative works. Not free of charge. Only private, under the shape of author builts, and on deserve.  
   
-• Requirement and Consent: Contact, pay, and quote author for being granted to use. Permissions to use are only given with the consents of author by contacting him. No one may own, obtain, or use any work of author without the requirements and consents.  
+• Requirement and Consent: Contact, pay, and quote author for being granted to use. Rights to use are only given with the consents of author by contacting him. No one may own, obtain, or use any work of author without the requirements and consents.  
   
 • Restriction: Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, developpement, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
   
-• Outbreak: Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to not be credible.  
+• Outbreak: Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
   
 • Infringement: Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
