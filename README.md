@@ -17,3 +17,5 @@
   
 • Infringement: Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who's not agree with this license agreement, owe to author the subsequent penalities.  
   
+• Having Rights: Author only, the author's family after his death.  
+  
