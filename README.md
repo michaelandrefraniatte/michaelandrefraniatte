@@ -3,7 +3,7 @@ License Agreement for Using Works of Author
   
 • Author: Michaël André Franiatte. • Email: michael.franiatte@gmail.com. • Publisher: https://github.com/michaelandrefraniatte.  
   
-• Works: Source codes, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, etc.  
+• Works: Source codes, algorithms, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, designs, etc.  
   
 • Copyrights and Intellectual Property: All rights reserved, no permissions granted, on any work of author. No one has any right to use it freely, and no one has any right to put his name on it, even published publicly.  
   
