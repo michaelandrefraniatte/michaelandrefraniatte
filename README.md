@@ -19,6 +19,8 @@
   
 **• Liability:** Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
   
+**• Loyalty:** Anything that goes against this license agreement is illegal, whether by a company, a corporation, a factory, a laboratory, a group, an individual, or an artificial intelligence. Everything is done to punish or perish the offenses.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
 **• Having Rights:** Author only, the author's family after his death.  
