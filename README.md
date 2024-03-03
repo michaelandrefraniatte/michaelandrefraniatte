@@ -5,7 +5,7 @@
   
 **• Email:** michael.franiatte@gmail.com.  
   
-**• Publisher:** https:**//github.com/michaelandrefraniatte.  
+**• Publisher:** https://github.com/michaelandrefraniatte.  
   
 **• Works:** Source codes, algorithms, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, designs, etc.  
   
