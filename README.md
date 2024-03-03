@@ -1,7 +1,11 @@
 ﻿  
 License Agreement for Using Works of Author  
   
-• Author: Michaël André Franiatte. • Email: michael.franiatte@gmail.com. • Publisher: https://github.com/michaelandrefraniatte.  
+• Author: Michaël André Franiatte.  
+  
+• Email: michael.franiatte@gmail.com.  
+  
+• Publisher: https://github.com/michaelandrefraniatte.  
   
 • Works: Source codes, algorithms, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, designs, etc.  
   
@@ -13,7 +17,7 @@ License Agreement for Using Works of Author
   
 • Restriction: Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, developpement, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
   
-• Outbreak: Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
+• Liability: Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
   
 • Infringement: Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
