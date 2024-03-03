@@ -1,5 +1,5 @@
 ﻿  
-License Agreement for Using Works of Author  
+**License Agreement for Using Works of Author**  
   
 • Author: Michaël André Franiatte.  
   
