@@ -1,23 +1,27 @@
 ﻿  
 **License Agreement for Using Works of Author**  
   
-**• Author:** Michaël André Franiatte.  
+**• Exclusive Author:** Michaël André Franiatte.  
   
-**• Email:** michael.franiatte@gmail.com.  
+**• Official Job:** Unemployed.  
   
-**• Website:** https://michaelandrefraniatte.github.io.  
+**• Official Graduations:** Doctor in geosciences and web developper.  
   
-**• Publisher:** https://github.com/michaelandrefraniatte.  
+**• Address Email:** michael.franiatte@gmail.com.  
   
-**• Founding:** https://github.com/sponsors/michaelandrefraniatte.  
+**• Exclusive Publisher:** https://github.com/michaelandrefraniatte.  
   
-**• Works:** Source codes, algorithms, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, designs, etc.  
+**• Home Website:** https://michaelandrefraniatte.github.io.  
+  
+**• Founding Author:** https://github.com/sponsors/michaelandrefraniatte.  
+  
+**• Main Works:** Source codes, algorithms, equations, hypothesis, programs, libraries, dependencies, websites, webapps, webservices, pages, scripts, macros, configs, datas, fluids, molecules, materials, examples, supports, infos, tips, helps, concepts, ideas, designs, etc.  
   
 **• Copyrights and Intellectual Property:** All rights reserved, no permissions granted, on any work of author. No one has any right to use it freely, and no one has any right to put his name on it, even published publicly.  
   
-**• License:** Not open source, author retains all rights on his works, no one may distribute, reproduce, copy, modify, or create derivative works. Not free of charge. Only private, under the shape of author builts, and on deserve.  
+**• License Description:** Not open source, author retains all rights on his works, no one may distribute, reproduce, copy, modify, or create derivative works. Not free of charge. Only private, under the shape of author builts, and on deserve.  
   
-**• Requirement and Consent:** Contact, found, and quote author for being granted to use. Rights to use are only given with the consents of author by contacting him. No one may own, obtain, or use any work of author without the requirements and consents.  
+**• Requirement and Consent:** Found and quote author for being granted to use. Rights to use are only given with the consents of author by contacting him. No one may own, obtain, or use any work of author without the requirements and consents.  
   
 **• Restriction:** Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, developpement, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
   
@@ -29,5 +33,5 @@
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
-**• Having Rights:** Author only for now, the author's family after his death.  
+**• Having Rights:** Author, the author's family after his death, sponsors.  
   
