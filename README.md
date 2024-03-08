@@ -7,7 +7,7 @@
   
 **• Official Graduations:** Doctor in geosciences and web developper.  
   
-**• Address Email:** michael.franiatte@gmail.com.  
+**• Email Address:** michael.franiatte@gmail.com.  
   
 **• Exclusive Publisher:** https://github.com/michaelandrefraniatte.  
   
