@@ -5,7 +5,7 @@
   
 **• Official Job:** Unemployed.  
   
-**• Official Graduations:** Doctor in geosciences and web developper.  
+**• Official Graduations:** Doctor in geosciences and Web developer.  
   
 **• Email Address:** michael.franiatte@gmail.com.  
   
