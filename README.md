@@ -31,7 +31,7 @@
   
 **• Availability:** The author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
   
-**• Sponsor:** I can help anyone who want to use my works. I tried to give some helps with my Website in english, but I know it's not sufficient. It's hard to digest sometimes. It should be more user friendly asking my help. I'm also open for new works.  
+**• Sponsor:** I can help anyone who wants using my works. I tried to give some helps with my Website in english, but I know it's not sufficient. It's hard to digest sometimes. It should be more user friendly asking my help. I'm also open for new works.  
   
 **• Liability:** Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
   
