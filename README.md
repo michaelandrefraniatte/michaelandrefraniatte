@@ -29,7 +29,7 @@
   
 **• Demand:** Anyone can ask custom programs or customization of programs to author. With updates from time to time on what author implemented and such amont of works author did, with lack of sponsors, it couldn't be maintained. It's a matter of time.  
   
-**• Access:** Anyone can ask access to works of author while it would not be available publicly. Massive amount of access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
+**• Access:** Anyone should ask access to works of author in case of not being a sponsor yet. Massive amount of access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
   
 **• Availability:** The author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
   
