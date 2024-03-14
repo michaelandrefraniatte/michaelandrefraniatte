@@ -5,7 +5,7 @@
   
 **• Official Job:** Unemployed.  
   
-**• Official Graduations:** Doctor in geosciences and Web developer.  
+**• Official Graduations:** Doctor in Geosciences and Web Developer.  
   
 **• Email Address:** michael.franiatte@gmail.com.  
   
@@ -23,7 +23,7 @@
   
 **• Requirement and Consent:** Sponsor and quote author for being granted to use. Rights to use are only given with the consents of author by contacting him. No one may own, obtain, or use any work of author without the requirements and consents.  
   
-**• Restriction:** Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, developpement, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
+**• Restriction:** Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, development, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
   
 **• Sponsor:** Author can help anyone who wants using his works. He tried to give some helps with his Website in english, but he knows it's not sufficient. It's hard to digest sometimes. It should be more user friendly asking his help. He's also open for new works.  
   
