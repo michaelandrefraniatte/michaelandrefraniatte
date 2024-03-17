@@ -39,7 +39,7 @@
   
 **• Royalty:** Using works of author without sponsoring and quoting him isn't normal. Author worked a lot and what he made were not easy. He lost his life while human behaviours were constantly attacking himself but taking to him everything.  
   
-**• Acknowledgement:** Author does not accept that people come and rummage through his works as if they were garbages. Author deserve better, like to be acknowledge by many people because his works are of great values. He's only ignored and stolen.  
+**• Acknowledgement:** Author does not accept anyone come and rummage through his works as if it was garbage. Author deserve better, like to be acknowledge by many people because his works are of great values. In fact, he's only ignored and stolen.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
