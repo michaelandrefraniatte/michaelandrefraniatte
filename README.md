@@ -31,7 +31,9 @@
   
 **• Access:** Anyone must ask consents of author to access his works in case of not being a sponsor yet. Access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
   
-**• Availability:** The author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
+**• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
+  
+**• Availability:** Author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
   
 **• Liability:** Who's not agree with this license agreement shall not use anything and shall delete everything. This license agreement stand for any work of author or anything using in any manner any work of author. Author has enough evidence to be credible.  
   
