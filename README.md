@@ -61,7 +61,7 @@
   
 **• Price:** Being a sponsor isn't expensive to be allowed to use works of author, even if author accept only true sponsoring, for fees greater than cents, to avoid stupids like author already met in the past. Otherwise, thiefs owe to author far much more.  
   
-**• Woke:** Author has met stupids who took him from above. They are considered as they are not. They never let author to express a point of view. They believe to know what are impossible or not. They fired and stolen author and his life. Hope for they disgust themselves.  
+**• Woke:** Author has met stupids who took him from above. They are considered as strong. They never let author to express a point of view. They impose what are impossible or not. They fired and stolen author and his life. Hope for they disgust themselves.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
