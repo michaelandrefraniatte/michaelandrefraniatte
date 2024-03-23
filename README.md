@@ -53,6 +53,8 @@
   
 **• Visibility:** Author tried to have visibility on social networks and on forums, but in fact he was only banned and black listed. There are only thiefs and unrespectous persons insulting author. Author claims the deletion everywhere his works are stolen.  
   
+**• Which:** How anyone taking freely works of author, can be so bad, so lazzy, so loathsome, a demon. Yet, it's not someone author would work with obviously. A disgusting hoodlum who only knows making like others and flooding bad works. Author says no.  
+  
 **• Thieve:** Anyone not having rights to use works of author is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
