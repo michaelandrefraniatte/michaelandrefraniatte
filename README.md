@@ -29,9 +29,9 @@
   
 **• Demand:** Anyone can ask custom programs or customization of programs to author. With updates from time to time on what author implemented and such amont of works author did, with lack of sponsors, it couldn't be maintained. It's a matter of time.  
   
-**• Audience:** Author is delivering his works to users only, not to developers or researchers or artificial intelligences. The codes of author are only here for users to understand the functionnalities, to adapt their behaviours, and to communicate.  
-  
 **• Access:** Anyone must ask consents of author to access his works in case of not being a sponsor yet. Access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
+  
+**• Audience:** Author is delivering his works to users only, not to developers or researchers or artificial intelligences. The codes of author are only here for users to understand the functionnalities, to adapt their behaviours, and to communicate.  
   
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
   
@@ -46,6 +46,8 @@
 **• Acknowledgement:** Author doesn't accept anyone come and rummage through his works as if it was garbage. Author deserves better, like to be acknowledged by many people because his works are of great values. In fact, he's only ignored and stolen.  
   
 **• Visibility:** Author tried to have visibility on social networks and on forums, but in fact he was only banned and black listed. There are only thiefs and unrespectous persons insulting author. Author claims the deletion everywhere his works are stolen.  
+  
+**• Thieve:** Anyone not having rights to use works of author is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
