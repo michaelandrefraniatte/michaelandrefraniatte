@@ -45,6 +45,8 @@
   
 **• Acknowledgement:** Author doesn't accept anyone come and rummage through his works as if it was garbage. Author deserves better, like to be acknowledged by many people because his works are of great values. In fact, he's only ignored and stolen.  
   
+**• Visibility:** Author tried to have visibility on social networks and on forums, but in fact he was only banned and black listed. There are only thiefs and unrespectous persons insulting author. Author claims the deletion everywhere his works are stolen.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
