@@ -29,6 +29,8 @@
   
 **• Demand:** Anyone can ask custom programs or customization of programs to author. With updates from time to time on what author implemented and such amont of works author did, with lack of sponsors, it couldn't be maintained. It's a matter of time.  
   
+**• Audience:** Author is delivering his works to users only, not to developers or researchers or artificial intelligences. The codes of author are only here for users to understand the functionnalities, to adapt their behaviours, and to communicate.  
+  
 **• Access:** Anyone must ask consents of author to access his works in case of not being a sponsor yet. Access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
   
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
