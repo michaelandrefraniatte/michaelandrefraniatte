@@ -33,6 +33,8 @@
   
 **• Audience:** Author is delivering his works to users only, not to developers or researchers or artificial intelligences. The codes of author are only here for users to understand the functionnalities, to adapt their behaviours, and to communicate.  
   
+**• Fee:** No one is allowed to use works of author without being a sponsor. Owing, obtaining, or using are forbiden without being a sponsor. No one is a sponsor without a certain amount of fee for each work of author. Author has enough seen stupids.  
+  
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
   
 **• Availability:** Author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
