@@ -25,9 +25,9 @@
   
 **• Restriction:** Sharing or using undirectly constitute infringements to copyrights sanctionned by copyright laws. Redistribution, embed, development, research, discovery, support, or commercialisation are strictly prohibited in any way and in any manner.  
   
-**• Sponsor:** Author can help anyone who wants using his works. He tried to give some helps with his Website in english, but he knows it's not sufficient. It's hard to digest sometimes. It should be more user friendly asking his help. He's also open for new works.  
+**• Sponsor:** Author can help any sponsor who wants using his works. He tried to give some helps with his Website, but he knows it's not sufficient. It's hard to digest sometimes. It should be more user friendly asking his help. He's also open to new works.  
   
-**• Demand:** Anyone can ask custom programs or customization of programs to author. With updates from time to time on what author implemented and such amont of works author did, with lack of sponsors, it couldn't be maintained. It's a matter of time.  
+**• Demand:** Any sponsor can ask custom programs or customization of programs to author. With updates from time to time on what author implemented and such amont of works author did, with lack of sponsors, it couldn't be maintained. It's a matter of time.  
   
 **• Access:** Anyone must ask consents of author to access his works in case of not being a sponsor yet. Access is destroying works of author because it's hacky, tricky, and risky, such it would ask to author to make update often. Author is waiting.  
   
