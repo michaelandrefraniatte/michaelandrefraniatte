@@ -35,7 +35,9 @@
   
 **• Fee:** No one is allowed to use works of author without being a sponsor. Owing, obtaining, or using are forbiden without being a sponsor. No one is a sponsor without a certain amount of fee for each work of author. Author has enough seen stupids.  
   
-**• Bill:** In case of anyone would not understand, author needs to live and pay his bills like everyone. Author doesn't delivered his works for anyone else comes to take his works freely and profits instead of him. Author doesn't let do it.  
+**• Bill:** In case of anyone would not understand, author needs to live and pay his bills like everyone. Author doesn't delivered his works for anyone else comes to take his works freely and profits instead of him. Author doesn't let to do it.  
+  
+**• Refrain:** Author has seen too much times and too much stupids taking to him everything. Author never accepted it. Anyone can see everywhere contents stolen, and how bad contents can report a lot, even stolen. Author made only good and original contents.  
   
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
   
