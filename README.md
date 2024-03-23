@@ -55,9 +55,9 @@
   
 **• Which:** How anyone taking freely works of author, can be so bad, so lazzy, so loathsome, a demon. Yet, it's not someone author would work with obviously. A disgusting hoodlum who only knows making like others and flooding bad works. Author says no.  
   
-**• Thieve:** Anyone not having rights to use works of author is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
+**• Thieve:** Anyone who doesn't have rights to use works of author, but using it, is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
   
-**• Forsaken:** Fortunately to anyone who owns, obtains, and uses freely works of owner, it's also free to delete everything. Author is advicing any infringer to delete his works and forsake using it without waiting one second. This advice is also free.  
+**• Forsaken:** Fortunately to anyone who owns, obtains, or uses freely works of owner, it's also free to delete everything. Author is advicing any thief to delete his works and forsake for life using it without waiting one second. This advice is also free.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
