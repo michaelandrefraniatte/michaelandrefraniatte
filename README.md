@@ -59,6 +59,8 @@
   
 **• Forsaken:** Fortunately to anyone who owns, obtains, or uses freely works of owner, it's also free to delete everything. Author is advicing any thief to delete his works and forsake for life using it without waiting one second. This advice is also free.  
   
+**• Price:** Being a sponsor isn't expensive to be allowed to use works of author, even if author accept only true sponsoring, for fees greater than cents, to avoid stupids like author already met in the past. Otherwise, thiefs owe to author far much more.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
