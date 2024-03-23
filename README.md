@@ -35,6 +35,8 @@
   
 **• Fee:** No one is allowed to use works of author without being a sponsor. Owing, obtaining, or using are forbiden without being a sponsor. No one is a sponsor without a certain amount of fee for each work of author. Author has enough seen stupids.  
   
+**• Bill:** In case of anyone would not understand, author needs to live and pay his bills like everyone. Author doesn't delivered his works for anyone else comes to take his works freely and profits instead of him. Author doesn't let do it.  
+  
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
   
 **• Availability:** Author did not set his works available publicly for anyone can come to take it freely. Any work deserve a salary. Unfortunatly, author could not count on the honesty of anyone. At the same time, works of author don't deserve to be lost.  
