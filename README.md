@@ -37,7 +37,7 @@
   
 **• Bill:** In case of anyone would not understand, author needs to live and pay his bills like everyone. Author doesn't delivered his works for anyone else comes to take his works freely and profits instead of him. Author doesn't let to do it.  
   
-**• Refrain:** Author has seen too much times and too much stupids taking to him everything. Author never accepted it. Anyone can see everywhere contents stolen, and how bad contents can report a lot, even stolen. Author made only good and original contents.  
+**• Refrain:** Author has seen too much times and too much stupids taking to him everything. Author never accepted it. Anyone can see everywhere works stolen, and how bad works can report a lot, even stolen. Author made only good and original works.  
   
 **• Publishing:** Author doesn't allow anyone to take his works without the requirements and consents. Author doesn't allow anyone to take his works for make stuffs like if anyone is owning it. Author doesn't allow anyone to take his works to make what he wants.  
   
