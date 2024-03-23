@@ -33,7 +33,7 @@
   
 **• Audience:** Author is delivering his works to users only, not to developers or researchers or artificial intelligences. The codes of author are only here for users to understand the functionnalities, to adapt their behaviours, and to communicate.  
   
-**• Fee:** No one is allowed to use works of author without being a sponsor. Owing, obtaining, or using are forbiden without being a sponsor. No one is a sponsor without a certain amount of fee for each work of author. Author has enough seen stupids.  
+**• Fee:** No one is allowed to use works of author without being a sponsor. Owning, obtaining, or using are forbiden without being a sponsor. No one is a sponsor without a certain amount of fee for each work of author. Author has enough seen stupids.  
   
 **• Bill:** In case of anyone would not understand, author needs to live and pay his bills like everyone. Author doesn't delivered his works for anyone else comes to take his works freely and profits instead of him. Author doesn't let to do it.  
   
@@ -56,6 +56,8 @@
 **• Which:** How anyone taking freely works of author, can be so bad, so lazzy, so loathsome, a demon. Yet, it's not someone author would work with obviously. A disgusting hoodlum who only knows making like others and flooding bad works. Author says no.  
   
 **• Thieve:** Anyone not having rights to use works of author is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
+  
+**• Forsaken:** Fortunately to anyone who owns, obtains, and uses freely works of owner, it's also free to delete everything. Author is advicing any infringer to delete his works and forsake using it without waiting one second. This advice is also free.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owe to author the subsequent penalities.  
   
