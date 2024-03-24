@@ -57,7 +57,7 @@
   
 **• Thieve:** Anyone who doesn't have rights to use works of author, but using it, is a thief and shall delete everything using totally or partially works of author. Thieves are criminal acts which are punished by laws. Not being aware isn't tolerate.  
   
-**• Forsaken:** Fortunately to anyone who owns, obtains, or uses freely works of owner, it's also free to delete everything. Author is advicing any thief to delete his works and forsake for life using it without waiting one second. This advice is also free.  
+**• Forsaken:** Fortunately to anyone who owns, obtains, or uses freely works of author, it's also free to delete everything. Author is advicing any thief to delete his works and forsake for life using it without waiting one second. This advice is also free.  
   
 **• Price:** Being a sponsor isn't expensive to be allowed to use works of author, even if author accept only true sponsoring, for fees greater than cents, to avoid stupids like author already met in the past. Otherwise, thiefs owe to author far much more.  
   
