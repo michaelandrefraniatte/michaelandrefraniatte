@@ -73,6 +73,8 @@
   
 **• Misunderstood:** Works of author were such considered bad that no one took any explaination. Already that no one can understand anything with explainations even if the person explaining is supposed to have understood. There's no point in stealing.  
   
+**• Dishonor:** The author is someone respectful and honest, just like his works. Continuing dishonest works is a difficult task for who has experience, who has no experience, only knows how to be dishonest, but it's mainstream, like sink copyrights of author.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
