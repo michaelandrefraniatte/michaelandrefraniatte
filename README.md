@@ -69,7 +69,7 @@
   
 **• Groove:** Anyone doesn't dare to be a complete idiot, but it's too late for going back. Anyone had to think about it first. The damage is done, it's very funny, and it's just a matter of time on what will fall on thiefs, author has just to laugh.  
   
-**• Ignorance:** Author wasn't allowed to teach and continue his works, he's considered as a noob by real noobs. It would be smart to consult author against radioactive wastes to burry in a broken rock with fluid intrusions and without any impervious layer.  
+**• Ignorance:** Author wasn't allowed to teach and continue his works, he's considered as a noob. It would have been smart to give a job to author, even a few visibilities, instead of burry him and his works under a tons of mud, while doing big nonsense.  
   
 **• Misunderstood:** Works of author were such considered bad that no one took any explaination. Already that no one can understand anything with explainations even if the person explaining is supposed to have understood. There's no point in stealing.  
   
