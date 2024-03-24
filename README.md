@@ -63,6 +63,8 @@
   
 **• Woke:** Author only met stupids who took him from above. They are considered as strong. They never let author to express a point of view. They impose what are impossible or not. They fired and stolen author and his life. Hope for thiefs disgust themselves.  
   
+**• Disappointment:** Good for nothing but considered important, making moral, making job, winning a lot for nothing, having wings with rip off, coming to steal without believing to owe something. It's just lures. Tomorow nothing stay, nothing good.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
