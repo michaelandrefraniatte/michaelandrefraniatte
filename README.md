@@ -71,6 +71,8 @@
   
 **• Ignorance:** Author wasn't allowed to teach and continue his works, he's considered as a noob by real noobs. It would be smart to consult author against radioactive wastes to burry in a broken rock with fluid intrusions and without any impervious layer.  
   
+**• Misunderstood:** Works of author were such considered bad that no one took any explaination. Already that no one can understand anything with explanations even if the person explaining is supposed to have understood. There's no point in stealing.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
