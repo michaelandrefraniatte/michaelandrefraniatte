@@ -65,7 +65,7 @@
   
 **• Disappointment:** Good for nothing but considered important, making moral, making job, winning a lot for nothing, having wings with rip off, coming to steal without believing to owe something. It's just lures. Tomorow nothing stay, nothing good.  
   
-**• Burry:** To criticize the works of author, to not make the author known, and to not recognize his works, such idiots must live in a country full of idiots, on top of everything they did bad to him from the beginning.  
+**• Burry:** To criticize author, the works of author, to not make the author known, and to not recognize his works, such idiots must live in a country full of idiots, on top of everything they did bad to him from the beginning.  
   
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
