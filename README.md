@@ -67,6 +67,8 @@
   
 **• Burry:** To criticize author, the works of author, to not make the author known, and to not recognize his works, such idiots must live in a country full of idiots, on top of everything they did bad to him from the beginning.  
   
+**• Groove:** Anyone doesn't dare to be a complete idiot, but it's too late for going back. Anyone had to think about it first. The damage is done, it's very funny now, and author doesn't care about the rest that will fall on him. He had just to watch now.  
+  
 **• Infringement:** Not being aware of the risk incurred against copyright laws isn't tolerate. Not respecting the copyrights and intellectual property of author is criminal. Who infringes this license agreement, owes to author the subsequent penalities.  
   
 **• Having Rights:** Author, author's family after his death, sponsors.  
