@@ -5,7 +5,7 @@ My works are nor open sources, I retain all rights to my source codes and no one
   
 It's normal, I own the entire intellectual properties, and I decide of my copyrights. If you obtained my works, you have to delete it or pay me at month for using it at month. Nobody has any rights to steal my works again and again, I need my dues a few. In other terms, my works are copyrighted, even published publicly.  
   
-If you are not agree, you have to pay the maximum to my editor (here) for the copyright infringements.  
+If you are not agree with my author terms, you have to pay the maximum to me and to my publisher (here) for the copyright infringements.  
   
 This is the link to become a sponsor: https://github.com/sponsors/michaelandrefraniatte.  
   
