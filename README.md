@@ -5,5 +5,8 @@ My works are nor open sources, I retain all rights to my source codes and no one
   
 This is the link to become a sponsor: https://github.com/sponsors/michaelandrefraniatte.
   
+This is my e-mail address for contact me: michael.franiatte@gmail.com.
+  
+Regards,
 MAF
   
