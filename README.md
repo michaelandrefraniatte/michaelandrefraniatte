@@ -1,1 +1,1 @@
-﻿michael.franiatte@gmail.com
+﻿michael.franiatte@gmail.com Michael Andre Franiatte ©1999-2024
