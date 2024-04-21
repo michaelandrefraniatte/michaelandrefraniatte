@@ -1,7 +1,7 @@
 ﻿  
 Hi there,  
   
-My works are nor open sources, I retain all rights to my source codes and no one may reproduce, distribute, or create derivative works from your works. I didn't set any license in my repositories. If you are interested in my works, for using it at month, become a monthly sponsor, with a significative amount of tier, per work.  
+My works are nor open sources, I retain all rights to my source codes and no one may reproduce, distribute, or create derivative works from my works. I didn't set any license in my repositories. If you are interested in my works, for using it at month, become a monthly sponsor, with a significative amount of tier, per work.  
   
 It's normal, I own the entire intellectual properties, and I decide of my copyrights. If you obtained my works, you have to delete it, or to pay me at month for using it at month, by becoming a monthly sponsor. I tolerate only this way for you can using my works, and only in private manner. Nobody has any rights to steal my works again and again, I need my dues a few. In other terms, my works are copyrighted, even published publicly.  
   
