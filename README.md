@@ -3,7 +3,7 @@
 https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository  
   
 Michael Andre Franiatte ©1999-2024  
-michael.franiatte@gmail.com  
+https://docs.github.com/en/site-policy/github-terms/github-terms-of-service  
   
 If you use, thank you for considering my 25 years and more of works, with your small financial contribution.  
 https://github.com/sponsors/michaelandrefraniatte  
@@ -13,4 +13,7 @@ http://michaelandrefraniatte.github.io
   
 Repositories with SDK and programs  
 https://github.com/michaelandrefraniatte?tab=repositories  
+  
+I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and create new works around on demands.  
+michael.franiatte@gmail.com  
   
