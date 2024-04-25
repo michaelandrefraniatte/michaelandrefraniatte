@@ -14,6 +14,6 @@ http://michaelandrefraniatte.github.io
 My works in repositories with SDK and programs.  
 https://github.com/michaelandrefraniatte?tab=repositories  
   
-I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and create new works around on demands.  
+I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and I can create new works around on demands.  
 michael.franiatte@gmail.com  
   
