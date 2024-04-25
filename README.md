@@ -5,13 +5,13 @@ https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-f
 Michael Andre Franiatte ©1999-2024  
 https://docs.github.com/en/site-policy/github-terms/github-terms-of-service  
   
-If you use, thank you for considering my 25 years and more of works, with your small financial contribution.  
+If you use anything from me, thank you for considering my 25 years and more of works without being paid, with your small financial contribution, by becoming a sponsor.  
 https://github.com/sponsors/michaelandrefraniatte  
   
-Documentations, Showcases, Web Applications  
+My works in documentations, showcases, and web applications.  
 http://michaelandrefraniatte.github.io  
   
-Repositories with SDK and programs  
+My works in repositories with SDK and programs.  
 https://github.com/michaelandrefraniatte?tab=repositories  
   
 I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and create new works around on demands.  
