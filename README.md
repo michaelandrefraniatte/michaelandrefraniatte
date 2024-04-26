@@ -1,5 +1,5 @@
 ﻿  
-Hello, I'm Michael, a Doctor in Geosciences and a Web Developer. I created source codes, algorithms, equations, hypothesis, programs, libraries, websites, web applications, web services, pages, scripts, macros, configurations, datas, fluids, molecules, materials, examples, supports, informations, tips, concepts, ideas, designs, etc.  
+Hello, I'm Michael, a Doctor in Geosciences and a Web Developer. I created source codes, algorithms, equations, hypothesis, methods, programs, libraries, websites, web applications, web services, pages, scripts, macros, configurations, datas, fluids, molecules, materials, examples, supports, informations, tips, concepts, ideas, designs, etc.  
   
 If you use anything from me, thank you for considering my 25 years and more of works without being paid, with your small financial contribution, by becoming a sponsor.  
 https://github.com/sponsors/michaelandrefraniatte  
