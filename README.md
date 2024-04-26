@@ -10,7 +10,7 @@ http://michaelandrefraniatte.github.io
 My works in repositories with SDK and programs:  
 https://github.com/michaelandrefraniatte?tab=repositories  
   
-I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and I can create new works around on demands. I accept fork of my works to anyone for helping me, developing, testing, scripting, or traducing.  
+I can deliver my supports for using my works and I can teach my works to anyone. I can make changes of my works and I can create new works around on demands. I accept fork of my works to anyone for helping me: developing, testing, scripting, or traducing.  
 michael.franiatte@gmail.com  
   
 I'm the only one to own the copyrights and intellectual properties on my works, to use anything, only in private manner, you need to be a sponsor, otherwise I'm not agree, like using my works in public manner or in commercial manner.  
