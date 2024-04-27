@@ -13,7 +13,7 @@ https://github.com/michaelandrefraniatte?tab=repositories
 I can deliver my supports for using my works and I can teach my works to sponsors. I can make changes of my works and I can create new works around on demands. I accept re-use of my works to sponsors for pushing it on my repositories by helping me: developing, testing, scripting, or traducing.  
 michael.franiatte@gmail.com  
   
-I'm the exclusive author of my works and I hold all copyrights and intellectual properties. For using anything, only in private manner, you need to be a sponsor, otherwise I'm not agree, like using my works in public manner or in commercial manner. No permission is granted for free use, and no one has any right to put his name on my works, even if my works are published publicly. No one is under obligation to use or under the threat of having to use. This means you have to delete my works if you aren't a sponsor.  
+I'm the exclusive author of my works and I hold all copyrights and intellectual properties. For using anything, only in private manner, you need to be a sponsor, otherwise I'm not agree, like using my works in public manner or in commercial manner. No permission is granted for free use, and no one has any right to put his name on my works, even if my works are published publicly. No one is under obligation to use or under the threat of having to use. This means you have to delete my works if you aren't a sponsor. I retain all rights to my source codes and no one may reproduce, distribute, or create derivative works from my works.  
 Michael Andre Franiatte ©1999-2024  
 https://docs.github.com/en/site-policy/github-terms/github-terms-of-service  
   
