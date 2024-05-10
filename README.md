@@ -1,5 +1,5 @@
 ﻿  
-If you use anything from me, thank you for considering my 25 years and more of works without being paid, with your small financial contribution, by becoming a sponsor.  
+If you use anything from me, thank you to pay me, by becoming a sponsor.  
 https://github.com/sponsors/michaelandrefraniatte  
   
 I don't allow re-use of my works. I only allow sponsors to use my works in private manner. I invite sponsors to contact me.  
