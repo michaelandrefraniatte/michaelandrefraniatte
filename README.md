@@ -2,7 +2,7 @@
 If you use anything from me, thank you to pay me, by becoming a sponsor.  
 https://github.com/sponsors/michaelandrefraniatte  
   
-I don't allow re-use of my works. I only allow sponsors to use my works in private manner. I invite sponsors to contact me.  
+I don't allow re-use of my works. I only allow sponsors to use my works in private manner. Contact me.  
 michael.franiatte@gmail.com  
   
 My works are with documentations, showcases, and web applications.  
