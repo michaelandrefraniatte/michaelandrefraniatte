@@ -12,5 +12,5 @@ My works are under copyrights and intellectual properties of Michael Andre Frani
 https://docs.github.com/en/site-policy/github-terms/github-terms-of-service  
   
 I retain all rights to my source codes and no one may reproduce, distribute, or create derivative works from my works.  
-[https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/)  
+[https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)  
   
