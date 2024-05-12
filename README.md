@@ -8,9 +8,9 @@ I retain all rights to my source codes and no one may reproduce, distribute, or 
 My works are under copyrights and intellectual properties of Michael Andre Franiatte ©1999-2024.  
 https://docs.github.com/en/site-policy/github-terms/github-terms-of-service  
   
-My works are with documentations, showcases, and web applications.  
-https://michaelandrefraniatte.github.io  
-  
 My works are in repositories with SDK and programs.  
 https://github.com/michaelandrefraniatte?tab=repositories  
+  
+My works are with documentations, web applications, showcases, books, videos, etc.  
+https://michaelandrefraniatte.github.io  
   
