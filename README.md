@@ -1,5 +1,5 @@
 ﻿  
-I don't allow any use of my source codes and my works, I only allow my sponsors to use built of my works privately.  
+I don't allow any use of my source codes and my works, I only allow my sponsors to use privately my builts.  
 https://github.com/sponsors/michaelandrefraniatte  
   
 I retain all rights to my source codes and no one may reproduce, distribute, or create derivative works from my works.  
