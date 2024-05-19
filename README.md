@@ -1,10 +1,10 @@
 ﻿  
-I don't allow any use of my source codes and my works, I only allow my sponsors to use privately.  
+I don't authorize anything on my source codes and my works, I just privately authorize my sponsors.  
 https://github.com/sponsors/michaelandrefraniatte  
   
-My source codes and my works are in repositories to valorize my knowledges and to claim my copyrights.  
+My source codes and my works are in my repositories to claim loud and clear my copyrights.  
 https://github.com/michaelandrefraniatte?tab=repositories  
   
-My works also contain a lot of documentations, web applications, showcases, books, videos, etc.  
+My works also contain a lot of documentations, web applications, web sites, books, videos, etc.  
 https://michaelandrefraniatte.github.io  
   
