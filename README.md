@@ -8,3 +8,6 @@ https://github.com/michaelandrefraniatte?tab=repositories
 My source codes and my works are with a lot of documentations, sites, books, videos, etc.  
 https://michaelandrefraniatte.github.io  
   
+If you have an issue with anything or you are interested in my source codes and my works, contact me.  
+michael.franiatte@gmail.com  
+  
