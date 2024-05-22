@@ -1,5 +1,5 @@
 ﻿  
-I don't authorize anything with my source codes and my works, I only authorize my sponsors.  
+I don't authorize anything with my source codes and my works, I only authorize my sponsors to use privately.  
 https://github.com/sponsors/michaelandrefraniatte  
   
 My source codes and my works are in my repositories to claim my copyrights and intellectual properties.  
