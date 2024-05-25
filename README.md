@@ -1,7 +1,9 @@
 ﻿  
 Michael Andre Franiatte ©1999-2024. All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business.  
   
-<div><iframe src="https://github.com/sponsors/michaelandrefraniatte/button" title="Sponsor michaelandrefraniatte" height="32" width="114" style="border: 0; border-radius: 6px;"></iframe></div>  
+<a href="https://github.com/sponsors/michaelandrefraniatte" target="_blank" rel="nofollow">
+    <img src="https://github.com/sponsors/michaelandrefraniatte/button" alt="Sponsor michaelandrefraniatte" width="114" height="32" style="border: 0; border-radius: 6px;" />
+</a>  
   
 michael.franiatte@gmail.com  
   
