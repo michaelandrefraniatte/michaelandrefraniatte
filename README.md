@@ -1,16 +1,11 @@
 ﻿  
-I don't authorize anything with my source codes and my works, I only authorize my sponsors to use my works privately.  
-https://github.com/sponsors/michaelandrefraniatte  
+Michael Andre Franiatte ©1999-2024. All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business.  
   
-My source codes and my works are in my repositories to claim clearly my copyrights and intellectual properties.  
-https://github.com/michaelandrefraniatte?tab=repositories  
+<iframe src="https://github.com/sponsors/michaelandrefraniatte/button" title="Sponsor michaelandrefraniatte" height="32" width="114" style="border: 0; border-radius: 6px;"></iframe>  
   
-My source codes and my works also contain a lot of complementary informations, documentations, sites, books, etc.  
-https://michaelandrefraniatte.github.io  
-  
-I made some videos you can watch and like on my Youtube channel you can subscribe if you find my works usefull.  
-https://www.youtube.com/@mic113b  
-  
-If you have an issue with anything or you are interested in my source codes and my works, contact me.  
 michael.franiatte@gmail.com  
+  
+https://michaelandrefraniatte.github.io/  
+  
+https://www.youtube.com/@mic113b  
   
