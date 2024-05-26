@@ -9,7 +9,7 @@ Authorization to use privately my works by being a sponsor. Contact me required.
   
 📜 https://github.com/michaelandrefraniatte  
   
-🔗 https://michaelandrefraniatte.github.io/  
+🔗 https://michaelandrefraniatte.github.io  
   
 ✉ michael.franiatte@gmail.com  
   
