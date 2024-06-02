@@ -7,7 +7,7 @@
   
 **Copyrights:**  
   
-All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No addons.  
+All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No addons. No re-uses.  
   
 **Intellectual Properties:**  
   
