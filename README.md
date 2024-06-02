@@ -11,7 +11,7 @@ All rights reserved. No permissions granted. Not open sources. Not free of charg
   
 **Intellectual Properties:**  
   
-Source codes, Programs, designs, informations, documentations, websites, web applications, extensions, books, concepts, ideas, trademarks, visuals, and all in touch with my works are my own properties. No one may copy.  
+Source codes, programs, equations, methods, designs, informations, documentations, websites, web applications, extensions, books, concepts, ideas, trademarks, visuals, and all in touch with my works are my own properties. No one may copy.  
   
 **Requirements:**  
   
