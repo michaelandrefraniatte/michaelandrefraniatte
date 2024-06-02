@@ -15,9 +15,9 @@ Source codes, Programs, designs, informations, documentations, websites, web app
   
 **Requirements:**  
   
-✉ michael.franiatte@gmail.com  
+Contact me, my consent, and being a sponsor are required to use. Only privately use is tolerate.  
   
-Contact me and my consents, being a sponsor is required to use. Only privately use is tolerate.  
+✉ michael.franiatte@gmail.com  
   
 [![Sponsor michaelandrefraniatte](github_sponsor.svg)](https://github.com/sponsors/michaelandrefraniatte)  
   
