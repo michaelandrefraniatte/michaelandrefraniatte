@@ -1,9 +1,21 @@
 ﻿  
-Authorization to use only privately by being a sponsor.  
+**Copyrights:**  
+  
+All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No addons.  
+  
+**Intellectual Properties:**  
+  
+Source codes, Programs, designs, informations, documentations, websites, web applications, books, concepts, ideas, trademarks, visuals, and all in touch with my works are my own properties. No one may copy.  
+  
+**Requirements:**  
+  
+Being a sponsor is required to use. Only privately. Contact me and my consents.  
   
 [![Sponsor michaelandrefraniatte](github_sponsor.svg)](https://github.com/sponsors/michaelandrefraniatte)  
   
 ✉ michael.franiatte@gmail.com  
+  
+**Publisher and Website:**  
   
 📜 https://github.com/michaelandrefraniatte  
   
