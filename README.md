@@ -1,7 +1,7 @@
 ﻿  
 **Copyrights:**  
   
-All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No reproduces. No addons. No reuses. No imitates. No copies.  
+All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No reproduces. No addons. No reuses. No imitations. No copies.  
   
 **Intellectual Properties:**  
   
