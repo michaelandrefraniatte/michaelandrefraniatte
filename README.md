@@ -1,4 +1,6 @@
 ﻿  
+*The following copyrights, intellectual properties, and agreements apply to all of my works, even published publicly.*  
+  
 **Copyrights:**  
   
 All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No reproduces. No addons. No reuses. No imitations. No copies.  
