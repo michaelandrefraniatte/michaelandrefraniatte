@@ -1,5 +1,5 @@
 ﻿  
-*The following copyrights, intellectual properties, and agreements apply to all of my works, even published publicly.*  
+*The following copyrights, intellectual properties, and agreements apply to each of my works, even published publicly.*  
   
 **Copyrights:**  
   
