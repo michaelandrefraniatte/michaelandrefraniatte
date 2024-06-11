@@ -8,5 +8,7 @@ All rights reserved. No permissions granted. Not open sources. Not free of charg
 Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, web applications, extensions, books, designs, concepts, ideas, and all around my works are my own properties. No one may copy.  
   
 **Agreements:**  
+I only give authorization to use privately my works by being a sponsor. I didn't give any authorization to use my works without respect of my compyrights and intellectual properties. Otherwise I'm asking to delete and to pay penalities.  
+  
 [![Sponsor michaelandrefraniatte](github_sponsor.svg)](https://github.com/sponsors/michaelandrefraniatte)  
   
