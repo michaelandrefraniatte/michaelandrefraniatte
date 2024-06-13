@@ -5,7 +5,7 @@
 All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. No addons. No reuses. Not for business. No redistributions. No derivatives. No modifications. No reproduces. No imitations. No copies. No military uses. No lethal uses. No commercialisations. No markets. No sharing. No selling. No courses. No teaching. No speeching. No stuffs.  
   
 **Intellectual Properties:**  
-Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, web applications, extensions, books, designs, concepts, ideas, and all around my works are my own properties. No one may copy, or modify, or create derivative works. No one may use without my consents and paying me.  
+Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, web applications, extensions, books, designs, concepts, ideas, and all around my works are my own properties. No one may copy, or modify, or create derivative works. No one may use without my consents and paying me. Oherwise I'm asking to delete and pay penalities.  
   
 **Agreements:**  
 I only give you my authorization to use privately my works if you are one of my sponsor. I'am waiting for positive feedbacks on my works, corresponding to all the time I have spent on it, and its proper functioning. I expect something other than people who steal my works to make money off my back, or who ask me to work for free, or coming to download my works without talking to me and liking anything, or making their own stuffs with my works. I made big discoveries deserving prices, not my poor existing.  
