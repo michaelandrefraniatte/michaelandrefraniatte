@@ -8,7 +8,7 @@ All rights reserved. No permissions granted. Not open sources. Not free of charg
 Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, web applications, extensions, books, designs, concepts, ideas, and all around my works are my own properties. No one may copy, or modify, or redistribute, or create derivative works from my works.  
   
 **Agreements:**  
-I only give you my authorization to use privately my works if you are one of my sponsor. I'am waiting for positive feedbacks on my works, corresponding to all the time I have spent on it, and its proper functioning. I expect something other than people who steal my works to make money off my back, or who ask me to work for free, or coming to download my works without talking to me and liking anything, or making their own stuffs with my works. I made big discoveries deserving prices, not my poor existing.  
+I only give you my authorization to use privately my works if you are one of my sponsor. I'am waiting for positive feedbacks on my works, corresponding to all the time I have spent on it, and its proper functioning. I expect something other than people who steal my works to make money off my back, or who ask me to work for free, or coming to download my works without talking to me and liking anything, or making their own stuffs with my works. I made big discoveries deserving prices, not my sad life.  
   
 ✉ michael.franiatte@gmail.com  
 ▶︎ https://www.youtube.com/@mic113b  
