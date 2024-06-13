@@ -11,12 +11,8 @@ Source codes, programs, dependencies, libraries, equations, methods, information
 I only give you my authorization to use privately my works if you are one of my sponsor. I'am waiting for positive feedbacks on my works, corresponding to all the time I have spent on it, and its proper functioning. I expect something other than people who steal my works to make money off my back or who ask me to work for free or coming to download my works without talking to me and liking anything.  
   
 ✉ michael.franiatte@gmail.com  
-  
 ▶︎ https://www.youtube.com/@mic113b  
-  
 🌎 https://michaelandrefraniatte.github.io  
-  
 ❤️ https://github.com/sponsors/michaelandrefraniatte  
-  
 📜 https://github.com/michaelandrefraniatte?tab=repositories  
   
