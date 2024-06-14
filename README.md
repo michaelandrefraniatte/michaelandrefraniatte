@@ -1,5 +1,5 @@
 ﻿  
-*I don't give any authorization to use my works without the respect of the my copyrights and intellectual properties. I only give my authorization to use privately my works by being a sponsor. Check my links for more information.*  
+*I don't give any authorization to use my works without the respect of the my copyrights and intellectual properties. I only give authorization to use privately my works to my sponsors. Check my links for more information.*  
   
 **Copyrights:**  
 All rights reserved. No permissions granted. Not open sources. Not free of charges to use. No public uses. Not for business. No redistributions. No derivatives. No modifications. No reproduces. No imitations. No copies. No addons. No reuses. No military uses. No lethal uses. No commercialisations. No markets. No sharing. No selling. No courses. No teaching. No speeching. No stuffs.  
