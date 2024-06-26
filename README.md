@@ -8,6 +8,7 @@ All rights reserved, no permissions granted, not open sources, not free of charg
 Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, extensions, books, designs, concepts, ideas, and all my works are my properties. I retain all rights on it, and no one may infringe my copyrights.  
   
 **Links:**  
+✉ michael.franiatte@gmail.com  
 🌎 https://michaelandrefraniatte.github.io  
 ❤️ https://github.com/sponsors/michaelandrefraniatte  
 📜 https://github.com/michaelandrefraniatte?tab=repositories  
