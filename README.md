@@ -1,5 +1,8 @@
 ﻿  
-*Respect my copyrights and intellectual properties, and be one of my sponsors, for having authorization to use privately my works.*  
+<details>
+<summary>Requirements</summary>
+Respect my copyrights and intellectual properties, and be one of my sponsors, for having authorization to use privately my works.
+</details>  
   
 <details>
 <summary>Copyrights</summary>
@@ -15,8 +18,4 @@ Source codes, programs, dependencies, libraries, equations, methods, information
 <summary>Sponsors</summary>
 https://github.com/sponsors/michaelandrefraniatte
 </details>  
-  
-  
-  
-  
   
