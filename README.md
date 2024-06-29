@@ -7,6 +7,5 @@ All rights reserved, no permissions granted, not open sources, not free of charg
 **Intellectual Properties:**  
 Source codes, programs, dependencies, libraries, equations, methods, informations, documentations, websites, extensions, books, designs, concepts, ideas, and all my works are my properties. I retain all rights on it, and no one may infringe my copyrights.  
   
-**Sponsors:**  
-https://github.com/sponsors/michaelandrefraniatte  
+[![Sponsor michaelandrefraniatte](github_sponsor.svg)](https://github.com/sponsors/michaelandrefraniatte)  
   
