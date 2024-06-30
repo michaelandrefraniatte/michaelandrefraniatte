@@ -6,7 +6,7 @@ Respect my copyrights and intellectual properties, and be one of my sponsors, fo
   
 <details>
 <summary>Copyrights</summary>
-All rights reserved, no permissions granted, no free charges, no business, no redistributions, no derivatives, no modifications, no reproduces, no reuses, no public uses, no military uses, no lethal uses, no research uses, even published publicly.
+All rights reserved, no permissions granted, no free charges, no redistributions, no derivatives, no modifications, no reproduces, no reuses, no public uses, no business uses, no military uses, no lethal uses, no research uses, even published publicly.
 </details>  
   
 <details>
