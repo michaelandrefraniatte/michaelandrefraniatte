@@ -23,7 +23,7 @@ Source codes, programs, dependencies, libraries, equations, methods, information
 <details>
 <summary>Sponsors</summary>
 <pre>
-Contact me to know how being a sponsor for having authorization to use privately my works.
+I'm giving authorization to use privately my works to my GitHub sponsors only. Be a sponsor for having authorization to use privately my works.
 </pre>
 </details>  
   
