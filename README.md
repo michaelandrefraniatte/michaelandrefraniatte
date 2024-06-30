@@ -27,7 +27,7 @@ Source codes, programs, dependencies, libraries, equations, methods, information
 <summary>Sponsors</summary>
 <br>
 <pre>
-https://github.com/sponsors/michaelandrefraniatte
+Contact me to know how being a sponsor.
 </pre>
 </details>
 <br>
