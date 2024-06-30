@@ -1,5 +1,4 @@
-﻿<br>
-<details>
+﻿<details>
 <summary>Requirements</summary>
 <br>
 <pre>
@@ -11,7 +10,7 @@ Respect my copyrights and intellectual properties, and be one of my sponsors, fo
 <summary>Copyrights</summary>
 <br>
 <pre>
-All rights reserved, no permissions granted, no free charges, no copies, no redistributions, no derivatives, no modifications, no reproduces, no reuses, no public uses, no business uses, no military uses, no lethal uses, no research uses, even published publicly.
+All rights reserved, no permissions granted, no free charges, no copies, no redistributions, no derivatives, no modifications, no reproduces, no owning, no teaching, no speeching, no reuses, no public uses, no business uses, no military uses, no lethal uses, no research uses, even published publicly.
 </pre>
 </details>
 <br>
@@ -30,4 +29,3 @@ Source codes, programs, dependencies, libraries, equations, methods, information
 Contact me to know how being a sponsor.
 </pre>
 </details>
-<br>
