@@ -9,7 +9,7 @@
   
 • License: Not open source, not free of charge to use.  
   
-• Laws: You are agree to contact, quote and pay author, and you respect the copyrights and the license of author. You may not distribute, reproduce, copy, modify or create derivative work from work of author. Author retains all rights on his source codes. Ignorance of the law excuses no one.  
+• Laws: You are agree to contact, quote and pay author, and you respect the copyrights and the license of author. You may not distribute, reproduce, copy, modify or create derivative work from work of author. Author retains all rights on his source codes.  
   
-• Infringement: You have to pay to author 1 billion $ for each infringement on each work of author from a single source code line.  
+• Infringement: You have to pay to author 1 billion $ for each infringement on each work of author from a single line.  
   
