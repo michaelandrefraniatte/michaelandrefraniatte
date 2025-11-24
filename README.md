@@ -1,5 +1,5 @@
   
-• Author: Michaël André Franiatte.  
+• Author: Michaël André Franiatte (12/14/1979).  
   
 • Contact: michael.franiatte@gmail.com.  
   
