@@ -15,5 +15,5 @@
   
 • Infringement: You must pay to author $1 billion for each work of author, starting from a single infringed line or file.  
   
-• Consortium: Author considers any user who infringed the laws is able to do it for every works of author yet. Such user, still unable to respect author and anybody else, has to pay author $1 trillion, multiply by the interests, multiply by the moral harms suffered and multiply by all kinds of wealth lost by author and anybody else.  
+• Consortium: Author considers any user who infringed the laws is able to do it for every works of author yet. Such user, still unable to respect author and anybody else, has to pay to author $1 trillion, multiply by the interests, multiply by the moral harms suffered and multiply by all kinds of wealth and health lost by author and anybody else.  
   
