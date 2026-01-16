@@ -7,7 +7,7 @@
   
 • Website: https://michaelandrefraniatte.github.io.  
   
-• Copyright: All rights reserved, no permissions granted.  
+• Copyrights: All rights reserved, no permissions granted.  
   
 • License: Not open source, not free of charge to use.  
   
