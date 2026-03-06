@@ -9,6 +9,8 @@
   
 **• Channel:** https://www.youtube.com/@michaelandrefraniatte.  
   
+**• Edge:** https://microsoftedge.microsoft.com/addons/search?hl=fr&developer=Micha%C3%ABl+Andr%C3%A9+Franiatte.  
+  
 **• Copyrights:** All rights reserved, no permissions granted.  
   
 **• License:** Not open source, not free of charge to use.  
