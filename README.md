@@ -1,5 +1,5 @@
   
-**• Author:** Michaël André Franiatte (12/14/1979).  
+**• Author:** Michaël André Franiatte.  
   
 **• Contact:** michael.franiatte@gmail.com.  
   
@@ -9,7 +9,7 @@
   
 **• Channel:** https://www.youtube.com/@michaelandrefraniatte.  
   
-**• Edge:** https://microsoftedge.microsoft.com/addons/search?hl=fr&developer=Michaël+André+Franiatte.  
+**• Edge:** https://microsoftedge.microsoft.com/addons/search?developer=Michaël+André+Franiatte.  
   
 **• Copyrights:** All rights reserved, no permissions granted.  
   
