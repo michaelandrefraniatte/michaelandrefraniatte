@@ -1,7 +1,7 @@
   
 **• Author:** Michaël André Franiatte (1979).  
   
-**• Status:** PhD in Geosciences (2011) and Professional Licence in Web Development (2019).  
+**• Status:** PhD in Geosciences (2011) and Professional Bachelor's degree in Web Development (2019).  
   
 **• Email:** michael.franiatte@gmail.com.  
   
