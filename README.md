@@ -13,5 +13,5 @@
   
 **• Consent:** You are agree to contact, quote and pay author, and you respect the copyrights and the license of author. You may not distribute, reproduce, copy, modify or create derivative works from work of author. Author retains all rights on his source codes.  
   
-**• Prices:** Possible negotiation directly with author. Otherwise $1 million per work and per user agreed upon with consent. Otherwise $1 billion with only private use. Otherwise $1 trillion with unfair use like if you share or sell or publish or supplant or appropriate for you or dispossess author.  
+**• Prices:** Possible negotiation directly with author. Otherwise $1 million per work and per user agreed upon with consent. Otherwise $1 billion per work and per user with only private use. Otherwise $1 trillion per work and per user with unfair use like if you share or sell or publish or supplant or appropriate for you or dispossess author.  
   
