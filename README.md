@@ -17,5 +17,5 @@
   
 **• Prices:** Possible negotiation directly with author. Otherwise $1 million per work and per user agreed upon with consent. Otherwise $1 billion per work and per user with only private use. Otherwise $1 trillion per work and per user with unfair use like share or sell or publish or supplant work of author or appropriate in place of author or dispossess author.  
   
-**• Warning:** Author cannot accept to not being paid for his works. The prices are largely justified, and there's always a way for you to pay author, one way or another. But if you don't pay author, then don't use anything and delete everything everywhere now, no matter how much it cost you, otherwise pay now. You should think before you act like a slut.  
+**• Warning:** Author cannot accept to not being paid for his works. The prices are largely justified, and there's always a way for you to pay author, one way or another. But if you don't pay author, then don't use anything and delete everything everywhere now, no matter how much it cost you, otherwise you must pay author now. You should think before you act like a slut.  
   
